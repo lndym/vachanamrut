@@ -35,3 +35,13 @@ Moreover, Brahmã, Shiv, Laxmiji, Radhaji, Nãrad, Shukji, the Sanakãdik, th
 *Vachanamrut Gadhada Antya 39*
 
 ---
+
+There is no sinner worse than the person who does not realise Bhagwan to be the all-doer. In fact, he should be known to be a sinner worse than a person who has killed a cow, killed a brãhmin, associated with the wife of one's own guru, or maligned a sadguru who is a knower of brahm. This is because he believes Kãl, karma, etc., to be the cause of everything; not Bhagwan. In fact, one should not even stand in the shadow of such persons who are nãstik outcasts, nor should one listen to their talks, even unknowingly. 
+
+*Vachanamrut Kariyani 10*
+
+---
+
+Shreeji Mahãrãj replied, “Bhagwan always resides in His Akshardhãm. From the countless Pradhãn-Purush pairs that evolve from Mul-Mãyã, countless millions of brahmãnds evolve. Then, for the sake of His bhaktas, while still residing at one location in His Akshardhãm, and by His own wish, that Bhagwan appears in countless rups in the countless millions of brahmãnds.”
+
+*Vachanamrut Loya 4*
